@@ -1,1 +1,0 @@
-# pages-official-Pay-Donate.github.io
